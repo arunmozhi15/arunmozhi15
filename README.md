@@ -21,5 +21,4 @@ I'm a Full Stack Developer interested in collabrating on exciting projests . I'm
 
 - Feel free to reach out to me via :
 - Email: arunmozhiselvaraj15@gmail.com
-- Phone: +91 8122827946
 - LinkedIn: [Arunmozhi Selvaraj](https://www.linkedin.com/in/arunmozhiSelvaraj/)
